@@ -1,4 +1,3 @@
-### Hi there 👋
 
 # <img src="https://cdn3.emoji.gg/emojis/95696-cultofthelambclap.gif" width="40" height="40"/> Hi, I'm Diego!  
 
